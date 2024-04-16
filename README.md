@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Full stack Dev  
 - 🌱 I’m currently learning ...Dreamweaaer,HTML,CSS
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...imancford@outlooc.com
+- 📫 How to reach me ...imancford@outlook.com
 - 😄 Pronouns: ...He,Him  
 - ⚡ Fun fact: ...
 - 
